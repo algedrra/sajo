@@ -1,0 +1,2 @@
+# sajo
+Gamer sejati
